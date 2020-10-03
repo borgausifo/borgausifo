@@ -8,7 +8,7 @@ Before you swipe down any further, let me draw your attention to reasons why you
 
 Outside of work, I keep learning and incorporate my new skills to my personal projects, especially in scalable web applications and DevOps areas; and I'm an avid fitness fanatic, cyclist, and history addict.
 
-I also consider myself a not just a “tech enthusiast“ but also a “petrol head” and can sometimes be spotted in a near dealer parking lot next to coupes :).
+I also consider myself a not just a “tech enthusiast“ but also a “petrol head” and can sometimes be spotted in a near dealer parking lot next to coupes :). <br />
 
 
 

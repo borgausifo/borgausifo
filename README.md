@@ -1,6 +1,6 @@
 # 𝙷𝚒 𝙸'𝚖 𝙱𝚘𝚛𝚐𝚊  👋
 
-<a href="https://ibb.co/Njkp1Xs"><img src="https://i.ibb.co/J7b2xNK/github-think-1.png" alt="github-think-1" border="0"></a>
+<p align="center"><a href="https://ibb.co/Njkp1Xs"><img src="https://i.ibb.co/J7b2xNK/github-think-1.png" alt="github-think-1" border="0"></a></p>
 
 
 Before you swipe down any further, let me draw your attention to reasons why you might wantto know me 

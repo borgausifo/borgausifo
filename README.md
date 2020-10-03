@@ -1,5 +1,10 @@
 # Hi I'm Borga 👋
 
+
+
+## Find me around the web 🌎: <a href="https://github.com/sponsors/borgausifo">
+- Sharing updates on <a href="https://www.linkedin.com/in/borgausifo/">LinkedIn</a> 💼
+
 <!--
 **borgausifo/borgausifo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

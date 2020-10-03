@@ -12,9 +12,6 @@ Outside of work, I keep learning and incorporate my new skills to my personal pr
 
 I also consider myself a not just a “tech enthusiast“ but also a “petrol head” and can sometimes be spotted in a near dealer parking lot next to coupes :).
 
-If you are curious about either, I need sponsorship or not. The answer is I DO NOT need sponsorship.
-
-
 
 
 ## 𝙷𝚘𝚠 𝚃𝚘 𝚁𝚎𝚊𝚌𝚑 𝙼𝚎 𝙵𝚘𝚛 𝚊 𝚀𝚞𝚒𝚌𝚔 𝙲𝚑𝚊𝚝 💬  

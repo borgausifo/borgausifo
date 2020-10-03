@@ -2,7 +2,7 @@
 
 
 
-## Find me around the web 🌎: <a href="https://github.com/sponsors/borgausifo">
+## Find me around the web 🌎: <a href="https://github.com/sponsors/borgausifo"></a>
 - Sharing updates on <a href="https://www.linkedin.com/in/borgausifo/">LinkedIn</a> 💼
 
 <!--

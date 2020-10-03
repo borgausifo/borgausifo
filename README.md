@@ -1,6 +1,6 @@
 # 𝙷𝚒 𝙸'𝚖 𝙱𝚘𝚛𝚐𝚊  👋
 
-<img src="https://raw.githubusercontent.com/borgausifo/borgausifo/master/github-think.png?raw=true" />
+<img src="https://raw.githubusercontent.com/borgausifo/borgausifo/master/github-think-1.png?raw=true" />
 
 
 Before you swipe down any further, let me draw your attention to reasons why you might wantto know me 

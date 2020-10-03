@@ -17,7 +17,7 @@ If you are curious about either, I need sponsorship or not. The answer is I DO N
 
 
 
-## 𝙷𝚘𝚠 𝚃𝚘 𝚁𝚎𝚊𝚌𝚑 𝙼𝚎 𝙵𝚘𝚛 𝚊 𝚀𝚞𝚒𝚌𝚔 𝙲𝚑𝚊𝚝    
+## 𝙷𝚘𝚠 𝚃𝚘 𝚁𝚎𝚊𝚌𝚑 𝙼𝚎 𝙵𝚘𝚛 𝚊 𝚀𝚞𝚒𝚌𝚔 𝙲𝚑𝚊𝚝 💬  
 
 If you would like to reach me to chat for any reason, you can do so by copy/pasting the below link to your browser and selecting available times at your convenience. Please also mention the reason for reaching out to me on the page. You can also reach me by messaging here if that's your preference. 
 

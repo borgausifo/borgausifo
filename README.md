@@ -4,9 +4,9 @@ Before you swipe down any further, let me draw your attention to reasons why you
 
 to know me 
 
-•	I have a remarkable aptitude for finding new technology trends to implement in processes 
+-	I have a **remarkable** aptitude for learning new technology trends to implement in processes 
 
-•	I am a firm believer in the data analytic approach for solving challenges in engineering and other business areas.
+-	I am a **firm believer** in the data analytic approach for solving challenges in engineering and other business areas.
 
 Outside of work, I keep learning and incorporate my new skills to my personal projects, especially in scalable web applications and DevOps areas; and I'm an avid fitness fanatic, cyclist, and history addict.
 

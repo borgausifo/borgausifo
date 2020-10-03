@@ -1,4 +1,4 @@
-# Hi I'm Borga 👋
+# 𝙷𝚒 𝙸'𝚖 𝙱𝚘𝚛𝚐𝚊  👋
 
 Before you swipe down any further, let me draw your attention to reasons why you might want
 

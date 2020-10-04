@@ -1,4 +1,4 @@
-# 𝙷𝚒 𝙸'𝚖 𝙱𝚘𝚛𝚐𝚊 ¯\_(ツ)_/¯ 👋
+# 𝙷𝚒 𝙸'𝚖 𝙱𝚘𝚛𝚐𝚊  (ツ)_/¯ 👋
 
 <p align="center"><a href="https://ibb.co/Njkp1Xs"><img src="https://i.ibb.co/J7b2xNK/github-think-1.png" alt="github-think-1" border="0"></a></p>
 

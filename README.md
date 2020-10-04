@@ -21,7 +21,7 @@
 
 
 ##  𝙵𝚒𝚗𝚍 𝙼𝚎 𝙰𝚛𝚘𝚞𝚗𝚍 𝚃𝚑𝚎 𝚆𝚎𝚋  🌎: <a href="https://github.com/sponsors/borgausifo"></a>
-- Sharing updates on <a href="https://www.linkedin.com/in/borgausifo/">LinkedIn</a> 💼
+- 𝖲𝗁𝖺𝗋𝗂𝗇𝗀 𝗎𝗉𝖽𝖺𝗍𝖾𝗌 𝗈𝗇 <a href="https://www.linkedin.com/in/borgausifo/">LinkedIn</a> 💼
 
 <!--
 **borgausifo/borgausifo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

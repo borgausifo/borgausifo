@@ -1,4 +1,4 @@
-# 𝙷𝚒 𝙸'𝚖 𝙱𝚘𝚛𝚐𝚊  👋
+# 𝙷𝚒 𝙸'𝚖 𝙱𝚘𝚛𝚐𝚊 ¯\_(ツ)_/¯ 👋
 
 <p align="center"><a href="https://ibb.co/Njkp1Xs"><img src="https://i.ibb.co/J7b2xNK/github-think-1.png" alt="github-think-1" border="0"></a></p>
 
@@ -21,7 +21,7 @@
 
 
 ##  𝙵𝚒𝚗𝚍 𝙼𝚎 𝙰𝚛𝚘𝚞𝚗𝚍 𝚃𝚑𝚎 𝚆𝚎𝚋  🌎: <a href="https://github.com/sponsors/borgausifo"></a>
-- 𝚂𝚑𝚊𝚛𝚒𝚗𝚐 𝚞𝚙𝚍𝚊𝚝𝚎𝚜 𝚘𝚗  <a href="https://www.linkedin.com/in/borgausifo/">LinkedIn</a> 💼
+- 𝚂𝚑𝚊𝚛𝚒𝚗𝚐 𝚞𝚙𝚍𝚊𝚝𝚎𝚜 𝚘𝚗   <a href="https://www.linkedin.com/in/borgausifo/">LinkedIn</a> 💼
 
 <!--
 **borgausifo/borgausifo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

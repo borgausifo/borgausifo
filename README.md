@@ -9,9 +9,7 @@ Before you swipe down any further, let me draw your attention to reasons why you
 
 -	I am a **firm believer** in the data analytic approach for solving challenges in engineering and other business areas.
 
-Outside of work, I keep learning and incorporate my new skills to my personal projects, especially in scalable web applications and DevOps areas; and I'm an avid fitness fanatic, cyclist, and history addict.
-
-I also consider myself a not just a “tech enthusiast“ but also a “petrol head” and can sometimes be spotted in a near dealer parking lot next to coupes :). <br />
+𝙾𝚞𝚝𝚜𝚒𝚍𝚎 𝚘𝚏 𝚠𝚘𝚛𝚔, 𝙸 𝚔𝚎𝚎𝚙 𝚕𝚎𝚊𝚛𝚗𝚒𝚗𝚐 𝚊𝚗𝚍 𝚒𝚗𝚌𝚘𝚛𝚙𝚘𝚛𝚊𝚝𝚎 𝚖𝚢 𝚗𝚎𝚠 𝚜𝚔𝚒𝚕𝚕𝚜 𝚝𝚘 𝚖𝚢 𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕 𝚙𝚛𝚘𝚓𝚎𝚌𝚝𝚜, 𝚎𝚜𝚙𝚎𝚌𝚒𝚊𝚕𝚕𝚢 𝚒𝚗 𝚜𝚌𝚊𝚕𝚊𝚋𝚕𝚎 𝚠𝚎𝚋 𝚊𝚙𝚙𝚕𝚒𝚌𝚊𝚝𝚒𝚘𝚗𝚜 𝚊𝚗𝚍 𝙳𝚎𝚟𝙾𝚙𝚜 𝚊𝚛𝚎𝚊𝚜; 𝚊𝚗𝚍 𝙸'𝚖 𝚊𝚗 𝚊𝚟𝚒𝚍 𝚏𝚒𝚝𝚗𝚎𝚜𝚜 𝚏𝚊𝚗𝚊𝚝𝚒𝚌, 𝚌𝚢𝚌𝚕𝚒𝚜𝚝, 𝚊𝚗𝚍 𝚑𝚒𝚜𝚝𝚘𝚛𝚢 𝚊𝚍𝚍𝚒𝚌𝚝. 𝙸 𝚊𝚕𝚜𝚘 𝚌𝚘𝚗𝚜𝚒𝚍𝚎𝚛 𝚖𝚢𝚜𝚎𝚕𝚏 𝚊 𝚗𝚘𝚝 𝚓𝚞𝚜𝚝 𝚊 “𝚝𝚎𝚌𝚑 𝚎𝚗𝚝𝚑𝚞𝚜𝚒𝚊𝚜𝚝“ 𝚋𝚞𝚝 𝚊𝚕𝚜𝚘 𝚊 “𝚙𝚎𝚝𝚛𝚘𝚕 𝚑𝚎𝚊𝚍” 𝚊𝚗𝚍 𝚌𝚊𝚗 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚋𝚎 𝚜𝚙𝚘𝚝𝚝𝚎𝚍 𝚒𝚗 𝚊 𝚗𝚎𝚊𝚛 𝚍𝚎𝚊𝚕𝚎𝚛 𝚙𝚊𝚛𝚔𝚒𝚗𝚐 𝚕𝚘𝚝 𝚗𝚎𝚡𝚝 𝚝𝚘 𝚌𝚘𝚞𝚙𝚎𝚜 :). 
 
 
 

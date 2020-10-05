@@ -1,6 +1,6 @@
 # 𝙷𝚒 𝙸'𝚖 𝙱𝚘𝚛𝚐𝚊  (ツ)_/¯ 👋
 
-<p align="center"><a href="https://ibb.co/Njkp1Xs"><img src="https://i.ibb.co/J7b2xNK/github-think-1.png" alt="github-think-1" border="0"></a></p>
+[![gifbrg.gif](https://s1.gifyu.com/images/gifbrg.gif)](https://gifyu.com/image/666y)
 
 
  𝖡𝖾𝖿𝗈𝗋𝖾 𝗒𝗈𝗎 𝗌𝗐𝗂𝗉𝖾 𝖽𝗈𝗐𝗇 𝖺𝗇𝗒 𝖿𝗎𝗋𝗍𝗁𝖾𝗋, 𝗅𝖾𝗍 𝗆𝖾 𝖽𝗋𝖺𝗐 𝗒𝗈𝗎𝗋 𝖺𝗍𝗍𝖾𝗇𝗍𝗂𝗈𝗇 𝗍𝗈 𝗋𝖾𝖺𝗌𝗈𝗇𝗌 𝗐𝗁𝗒 𝗒𝗈𝗎 𝗆𝗂𝗀𝗁𝗍 𝗐𝖺𝗇𝗍𝗍𝗈 𝗄𝗇𝗈𝗐 𝗆𝖾 
@@ -10,7 +10,6 @@
 -	𝖨 𝖺𝗆 𝖺 **𝖿𝗂𝗋𝗆 𝖻𝖾𝗅𝗂𝖾𝗏𝖾𝗋** 𝗂𝗇 𝗍𝗁𝖾 𝖽𝖺𝗍𝖺 𝖺𝗇𝖺𝗅𝗒𝗍𝗂𝖼 𝖺𝗉𝗉𝗋𝗈𝖺𝖼𝗁 𝖿𝗈𝗋 𝗌𝗈𝗅𝗏𝗂𝗇𝗀 𝖼𝗁𝖺𝗅𝗅𝖾𝗇𝗀𝖾𝗌 𝗂𝗇 𝖾𝗇𝗀𝗂𝗇𝖾𝖾𝗋𝗂𝗇𝗀 𝖺𝗇𝖽 𝗈𝗍𝗁𝖾𝗋 𝖻𝗎𝗌𝗂𝗇𝖾𝗌𝗌 𝖺𝗋𝖾𝖺𝗌. 
 
 𝖮𝗎𝗍𝗌𝗂𝖽𝖾 𝗈𝖿 𝗐𝗈𝗋𝗄, 𝖨 𝗄𝖾𝖾𝗉 𝗅𝖾𝖺𝗋𝗇𝗂𝗇𝗀 𝖺𝗇𝖽 𝗂𝗇𝖼𝗈𝗋𝗉𝗈𝗋𝖺𝗍𝖾 𝗆𝗒 𝗇𝖾𝗐 𝗌𝗄𝗂𝗅𝗅𝗌 𝗍𝗈 𝗆𝗒 𝗉𝖾𝗋𝗌𝗈𝗇𝖺𝗅 𝗉𝗋𝗈𝗃𝖾𝖼𝗍𝗌, 𝖾𝗌𝗉𝖾𝖼𝗂𝖺𝗅𝗅𝗒 𝗂𝗇 𝗌𝖼𝖺𝗅𝖺𝖻𝗅𝖾 𝗐𝖾𝖻 𝖺𝗉𝗉𝗅𝗂𝖼𝖺𝗍𝗂𝗈𝗇𝗌 𝖺𝗇𝖽 𝖣𝖾𝗏𝖮𝗉𝗌 𝖺𝗋𝖾𝖺𝗌; 𝖺𝗇𝖽 𝖨'𝗆 𝖺𝗇 𝖺𝗏𝗂𝖽 𝖿𝗂𝗍𝗇𝖾𝗌𝗌 𝖿𝖺𝗇𝖺𝗍𝗂𝖼, 𝖼𝗒𝖼𝗅𝗂𝗌𝗍, 𝖺𝗇𝖽 𝗁𝗂𝗌𝗍𝗈𝗋𝗒 𝖺𝖽𝖽𝗂𝖼𝗍. 𝖨 𝖺𝗅𝗌𝗈 𝖼𝗈𝗇𝗌𝗂𝖽𝖾𝗋 𝗆𝗒𝗌𝖾𝗅𝖿 𝖺 𝗇𝗈𝗍 𝗃𝗎𝗌𝗍 𝖺 “𝗍𝖾𝖼𝗁 𝖾𝗇𝗍𝗁𝗎𝗌𝗂𝖺𝗌𝗍“ 𝖻𝗎𝗍 𝖺𝗅𝗌𝗈 𝖺 “𝗉𝖾𝗍𝗋𝗈𝗅 𝗁𝖾𝖺𝖽” 𝖺𝗇𝖽 𝖼𝖺𝗇 𝗌𝗈𝗆𝖾𝗍𝗂𝗆𝖾𝗌 𝖻𝖾 𝗌𝗉𝗈𝗍𝗍𝖾𝖽 𝗂𝗇 𝖺 𝗇𝖾𝖺𝗋 𝖽𝖾𝖺𝗅𝖾𝗋 𝗉𝖺𝗋𝗄𝗂𝗇𝗀 𝗅𝗈𝗍 𝗇𝖾𝗑𝗍 𝗍𝗈 𝖼𝗈𝗎𝗉𝖾𝗌 :). 
-
 
 
 ## 𝙷𝚘𝚠 𝚃𝚘 𝚁𝚎𝚊𝚌𝚑 𝙼𝚎 𝙵𝚘𝚛 𝚊 𝚀𝚞𝚒𝚌𝚔 𝙲𝚑𝚊𝚝 💬  
@@ -27,6 +26,11 @@
 **borgausifo/borgausifo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
+
+
+<p align="center"><a href="https://ibb.co/Njkp1Xs"><img src="https://i.ibb.co/J7b2xNK/github-think-1.png" alt="github-think-1" border="0"></a></p>
+
+
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
